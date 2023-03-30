@@ -1,0 +1,2 @@
+# FantasyBaseballCheaters
+free to use
